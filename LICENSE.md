@@ -1,4 +1,4 @@
-
+Surfshark automatic Utility: server-switching & smart-DNS is the best Surfshark utility, featuring server-switching and smart-DNS. Secure, fast, and optimized for privacy.
 
 
 
